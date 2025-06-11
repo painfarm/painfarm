@@ -29,7 +29,7 @@
 </p>
 
 <p align="center">
-  <img src="https://graphic.neocities.org/shootingstar.gif"
+  <img src="https://i.postimg.cc/YSrQMk1v/IMG-6986.gif"
 )"/> </p>
 
 <p align="center">
