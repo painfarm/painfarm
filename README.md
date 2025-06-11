@@ -10,7 +10,7 @@
 </p>
 
 <p align="center">
-  <img src="https://i.postimg.cc/TPtgPS9C/IMG-6455.jpg" />
+  <img src="https://i.postimg.cc/2SVxgnf1/Untitled1736-20250611154801.png" />
 </p>
 
 
