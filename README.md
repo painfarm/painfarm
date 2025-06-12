@@ -40,5 +40,8 @@
   <img src="https://graphic.neocities.org/tumblr_lrntc9phw41qip80b.gif"> 
 </p>
 
+<p align="center">
+    <sup> pfp, etc from koisuru boukun. </sup>
+</p>
     
 
