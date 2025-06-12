@@ -41,7 +41,7 @@
 </p>
 
 <p align="center">
-    <sup> pfp, etc from koisuru boukun. </sup>
+    <sup> pfp, etc from ksb </sup>
 </p>
     
 
