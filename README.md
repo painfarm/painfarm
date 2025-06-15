@@ -1,6 +1,4 @@
-<p align="center">
-  <img src="https://oceancake.carrd.co/assets/images/gallery16/bf66bcf2.png?v=edab04a1" />
-</p>
+
 
 <p align="center">
     <sup> -18 DO NOT FRQ. I HAVE A LOT OF NSFW INTERESTS AND DISCUSSIONS!! SORRY :( </sup>
