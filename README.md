@@ -8,7 +8,7 @@
 </p>
 
 <p align="center">
-  <img src="https://i.postimg.cc/LXFyBYJz/Untitled1737-20250611155936.png" />
+  <img src="https://i.postimg.cc/XqQgQRZX/IMG-6586.jpg" />
 </p>
 
 
@@ -23,11 +23,11 @@
 </p>
 <p align="center">
     
-  <img src="https://i.postimg.cc/Dz2tqJKB/68747470733a2f2f777777332e6c756e617069632e636f6d2f656469746f722f776f726b696e672f31373439363639373637.png"> 
+  <img src="https://i.postimg.cc/50ty8DMs/IMG-6359.jpg"> 
 </p>
 
 <p align="center">
-  <img src="https://i.postimg.cc/YSrQMk1v/IMG-6986.gif"
+  <img src="https://64.media.tumblr.com/0a4cd590df5bfe5e5020441eeb444473/5bbf98cb68edcf17-7a/s540x810/4f02df2a37ac333549257886470fea5ae4c8adde.pnj"
 )"/> </p>
 
 <p align="center">
@@ -35,7 +35,7 @@
     
 <p align="center">
     
-  <img src="https://graphic.neocities.org/tumblr_lrntc9phw41qip80b.gif"> 
+  <img src="https://i.postimg.cc/rsFHVCx0/IMG-6456.jpg"> 
 </p>
 
 <p align="center">
