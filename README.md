@@ -27,6 +27,12 @@
 </p>
 
 <p align="center">
+<sub>  
+<a href=https://painfarm.straw.page/about>LINKS - ABT</a>
+ </sub>
+</p>
+
+<p align="center">
   <img src="https://64.media.tumblr.com/0a4cd590df5bfe5e5020441eeb444473/5bbf98cb68edcf17-7a/s540x810/4f02df2a37ac333549257886470fea5ae4c8adde.pnj"
 )"/> </p>
 
