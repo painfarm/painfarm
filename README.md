@@ -45,7 +45,7 @@
 </p>
 
 <p align="center">
-    <sup> pfp, etc from ksb </sup>
+    <sup> pfp <a href=https://www.pixiv.net/en/users/2400302>credit</a> </sup>
 </p>
     
 
