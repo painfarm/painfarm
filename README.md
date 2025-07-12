@@ -8,7 +8,7 @@
 </p>
 
 <p align="center">
-  <img src="https://i.postimg.cc/YqmLywYf/IMG-7478.jpg" />
+  <img src="https://i.postimg.cc/TwsrPjvm/IMG-7552.jpg" />
 </p>
 
 
