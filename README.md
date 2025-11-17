@@ -1,11 +1,12 @@
-
-
+<p align="center">
+<img src="https://i.postimg.cc/C1fjBF2d/Untitled80-20251117183932.png">
+</p>
 
 <p align="center">
-    <sub> $${\color{yellow}-18 \space PLEASE \space DO \space NOT \space FRQ .\space I \space HAVE \space A \space LOT \space OF \space NSFW \space INTERESTS \space AND \space CONVERSATIONS. \space SORRY!}$$ </sub>
+    <sub> $${\color{yellow}-18 \space PLEASE \space DO \space NOT \space FRQ .\space I \space HAVE \space A \space LOT \space OF \space NSFW \space INTERESTS \space AND \space CONVERSATIONS .}$$ </sub>
 </p>
 <p align="center">
-  <img src="https://lifted.crd.co/assets/images/gallery01/c9fd70ff.gif?v=540c5116" />
+  <img src="https://i.postimg.cc/W1Pfsyhr/Untitled74-20251117164327.png" />
 </p>
 
 <p align="center">
@@ -16,7 +17,7 @@
 
 
 <p align="center">
- <sub> $${\color{yellow} - \space C+H \space / \space FRQ \space / \space ETC \space are \space all \space fine, \space i'm \space not \space difficult . \space usually \space sitting \space with \space my \space husband, \space around \space docks \space or \space spawn. \space X_X}$$   
+ <sub> $${\color{yellow} - \space C+H \space / \space FRQ \space / \space ETC \space are \space all \space fine, \space i'm \space not \space difficult . \space usually \space sitting \space around \space docks \space or \space spawn. \space X_X}$$   
  </sub> 
 </p>
 <p align="center">
@@ -33,7 +34,4 @@
 
     
 
-<p align="center">
-    <sup> pfp <a href=https://skeltrr.neocities.org/>credit</a> </sup>
-</p>
     
