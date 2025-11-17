@@ -28,7 +28,7 @@
 
 
 <p align="center">
-<img src="https://views-counter.vercel.app/badge?pageId=https%3A%2F%2Fgithub%2Ecom%2Fpainfarm%2Fpainfarm&leftColor=e9e9e9&rightColor=000000&type=total&label=-%20XOXO%20%2E&style=none" alt="Views Counter">
+<img src="https://views-counter.vercel.app/badge?pageId=livesurgery&leftColor=d34014&rightColor=e98e14&type=total&label=%E1%A1%95%E1%A0%B5%E3%83%87%E1%A1%81%E1%A0%8A%E2%95%BE%E2%94%81&style=none">
 
 
     
