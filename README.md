@@ -1,7 +1,8 @@
 
 
+
 <p align="center">
-    <sup> -18 PLEASE DO NOT FRQ . I HAVE A LOT OF NSFW INTERESTS AND DISCUSSIONS . SORRY . </sup>
+    <sub> $${\color{yellow}-18 \space PLEASE \space DO \space NOT \space FRQ .\space I \space HAVE \space A \space LOT \space OF \space NSFW \space INTERESTS \space AND \space CONVERSATIONS. \space SORRY!}$$ </sub>
 </p>
 <p align="center">
   <img src="https://lifted.crd.co/assets/images/gallery01/c9fd70ff.gif?v=540c5116" />
@@ -15,7 +16,8 @@
 
 
 <p align="center">
-<sub> c+h / frq / etc all fine, i'm not difficult . usually with my husband, i hang around docks + spawn the most !   </sub>
+ <sub> $${\color{yellow} - \space C+H \space / \space FRQ \space / \space ETC \space are \space all \space fine, \space i'm \space not \space difficult . \space usually \space sitting \space with \space my \space husband, \space around \space docks \space or \space spawn. \space X_X}$$   
+ </sub> 
 </p>
 <p align="center">
     
