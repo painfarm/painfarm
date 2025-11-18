@@ -37,6 +37,11 @@
 </p>
 
 
+<p align="center">
+    <sup>  <sub> $${\color{black} - \space pfp \space by \space @ \space skeltrr \space on \space tumblr \space + \space neocities \space . \space other \space art \space done \space for \space me \space by \space my \space love \space @ \space softmounted \space on \space tumblr \space .}$$   
+ </sub>  </sup>
+</p>
+
 
 
 
