@@ -9,11 +9,6 @@
 <img src="https://views-counter.vercel.app/badge?pageId=livesurgery&leftColor=d34014&rightColor=e98e14&type=total&label=%E1%A1%95%E1%A0%B5%E3%83%87%E1%A1%81%E1%A0%8A%E2%95%BE%E2%94%81&style=none">
 
 
-<p align="center">
-  <img src="https://i.postimg.cc/P5nP6X9R/Untitled75-20251117175616.png" />
-</p>
-
-
 
 
 <p align="center">
@@ -23,6 +18,7 @@
 <p align="center">
   <img src="https://i.postimg.cc/Cx56Q08H/Untitled72-20251117162915.png"> 
 </p>
+
 
 
 <p align="center">
